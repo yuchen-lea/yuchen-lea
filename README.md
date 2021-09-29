@@ -3,7 +3,7 @@ Hi there 👋
 My life is mainly governed by the interest in cognition 🧠 and the pity for the suffering ❤ . Here's what's top of my mind:
 
 - How to represent knowledge?
-- How we learn? how can we learn better?
+- How we learn? How can we learn better?
 
 At the practical level, I'd like to make some contributions for:
 
